@@ -1,1 +1,0 @@
-###THIS IS JUST for anonymous artifact url ###
